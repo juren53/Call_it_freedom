@@ -36,9 +36,9 @@ They'll leave the smoke and wasteland where the schoolhouse was found—
 And education, who needs it, when we have these freedoms.
 
 But liberty is not the property of those who deal in chains,
-It lives inside the kitchen talk, the joke that still remains,
-It's hidden in the book beneath the floorboard, in the name
-You teach your children in the dark so they can speak the same—
+It lives inside our homes and halls, its we that still remain,
+It's hidden in our deepest thoughts, and the hope that feels the same,
+We teach to our children well, so they will remember its name—
 
 So when they come to sell you back the things they took and named,
 A chain is still a chain no matter how it's been reframed,
