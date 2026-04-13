@@ -12,8 +12,8 @@ And tell you who to kneel to and which falsehoods become the law.
 
 They'll promise you they'll make it great, make it great again,
 Then point with crooked fingers at the skin of other men,
-They'll build the wall up higher so the right ones can come in—
-And they call it freedom.
+They build their wall up higher so only right ones can come in—
+Forget if they are tired and poor. And they call it freedom.
 
 They said they'd drain the swamp but all the money's moving in,
 The senator who sold his vote is pocketing the win,
