@@ -36,7 +36,7 @@ They'll leave the smoke and wasteland where the schoolhouse was found—
 And education, who needs it, when we have these freedoms.
 
 But liberty is not the property of those who deal in chains,
-It lives inside our homes and halls, its we that still remain,
+It lives inside our homes and halls, the hope that still remains,
 It's hidden in our deepest thoughts, and the hope that feels the same,
 We teach to our children well, so they will remember its name—
 
