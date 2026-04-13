@@ -8,7 +8,7 @@ And through the wreckage of it all they're calling it their right.
 They've merged the church with state, and they tell you who is free to love,
 They'll bar the clinic door with law and call it the will from above,
 Then preach about the founders and the freedom that they saw,
-And tell you who to kneel to and which prayers can pass the law.
+And tell you who to kneel to and which falsehoods become the law.
 
 They'll promise you they'll make it great, make it great again,
 Then point across the table at the skin of other men,
