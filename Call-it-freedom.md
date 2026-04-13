@@ -18,7 +18,7 @@ Forget if they are tired and poor. And they call it freedom.
 They said they'd drain the swamp but the money has moved in,
 The senator who sold his precious vote is pocketing the win,
 They've handed every key to those who've always owned the land,
-And told you that the market had the whole thing nicely planned.
+And tell you that the market has the whole thing nicely planned.
 
 They'll arm the one who's angry and they'll arm the grieving son,
 Then count the bodies carefully and say it's not the gun,
