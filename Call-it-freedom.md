@@ -16,7 +16,7 @@ They build their wall up higher so only right ones can come in—
 Forget if they are tired and poor. And they call it freedom.
 
 They said they'd drain the swamp but the money has moved in,
-The senator who sold his vote is pocketing the win,
+The senator who sold his precious vote is pocketing the win,
 They've handed every key to those who've always owned the land,
 And told you that the market had the whole thing nicely planned.
 
