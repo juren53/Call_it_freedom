@@ -33,7 +33,7 @@ Then tell you what you saw that day was just a different sight.
 They're drilling out the oilfields and they're burning up the ground,
 They'll ban the books that tell the truth and call the silence sound,
 They'll leave the smoke and wasteland where the schoolhouse was found—
-And they call it freedom.
+And education, who needs it, when we have these freedoms.
 
 But freedom's not the property of those who deal in chains,
 It lives inside the kitchen talk, the joke that still remains,
