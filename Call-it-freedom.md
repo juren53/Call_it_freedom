@@ -38,7 +38,7 @@ And education, who needs it, when we have these freedoms.
 But liberty is not the property of those who deal in chains,
 It lives inside our homes and halls, the hope that still remains,
 It's living deep inside us, that we are all the same,
-We teach to our children, so they will remember its name—
+We teach to our children, so we will remember its name—
 
 So when they come to sell you back the things they took and named,
 A chain is still a chain no matter how it's been reframed,
