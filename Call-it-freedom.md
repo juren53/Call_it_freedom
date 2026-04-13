@@ -42,5 +42,5 @@ We teach it to our children, so we'll remember its name—
 
 So when they come to sell you back the things they took and named,
 Remember, a chain is still a chain no matter how it's been reframed,
-The word belongs to those who won't be bought or fenced or tamed—
+If we hold this in our hearts and minds our spirit can't be tamed—
 And we'll call it freedom.
