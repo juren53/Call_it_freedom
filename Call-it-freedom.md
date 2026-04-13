@@ -1,6 +1,6 @@
 And They Call It Freedom
 
-A dark cloud has spread across the country and it's having its day,
+A dark cloud has spread across the country and it's owning the day,
 The ones who lived on grievance now are having their full say,
 They've broken every guardrail and they've swallowed up the light,
 And through the wreckage of it all they're calling it their right.
