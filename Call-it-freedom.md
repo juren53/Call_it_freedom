@@ -43,4 +43,4 @@ We teach it to our children so the light can be maintained—
 So when they come to sell you back the things they took and re-named,
 Remember, a chain is still a chain no matter how it's been reframed,
 Stay true to this and you will find your spirit can't be tamed—
-And we will hold these truths, and we'll call it freedom.
+We hold these truths, and we'll call it freedom.
