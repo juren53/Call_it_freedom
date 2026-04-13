@@ -1,0 +1,46 @@
+And They Call It Freedom
+
+A dark cloud has spread across the country and it's here to stay,
+The ones who lived on grievance now are having their full say,
+They've broken every guardrail and they've swallowed up the light,
+And somehow in the wreckage of it all they're calling it their right.
+
+They've merged the church and state, they'll tell you who is free to love,
+They'll bar the clinic door with law and call it God above,
+Then preach about the founders and the freedom that they saw,
+And tell you who to kneel to and which prayers can pass the law.
+
+They'll promise you they'll make it great, make it great again,
+Then point across the table at the skin of other men,
+They'll build the wall up higher so the right ones can come in—
+And they call it freedom.
+
+They said they'd drain the swamp but all the money's moving in,
+The senator who sold his vote is pocketing the win,
+They've handed every key to those who've always owned the land,
+And told you that the market had the whole thing nicely planned.
+
+They'll arm the one who's angry and they'll arm the grieving son,
+Then count the bodies carefully and say it's not the gun,
+They'll pass another bill and say the deed is finally done—
+And they call it freedom.
+
+They'll call the press the enemy and make the lie their own,
+They'll storm the halls of government and call it love alone,
+They'll pardon every rioter and swear it was your right,
+Then tell you what you saw that day was just a different light.
+
+They're drilling out the oilfields and they're burning up the ground,
+They'll ban the books that tell the truth and call the silence sound,
+They'll leave the smoke and wasteland where the schoolhouse once was found—
+And they call it freedom.
+
+But freedom's not the property of those who deal in chains,
+It lives inside the kitchen talk, the joke that still remains,
+It's hidden in the book beneath the floorboard, in the name
+You teach your children in the dark so they can speak the same—
+
+So when they come to sell you back the things they took and named,
+A chain is still a chain no matter how it's been reframed,
+The word belongs to those who won't be bought or fenced or tamed—
+And we'll call it freedom.
