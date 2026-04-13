@@ -5,7 +5,7 @@ The ones who lived on grievance now are having their full say,
 They've broken every guardrail and they've swallowed up the light,
 And through the wreckage of it all they're calling it their right.
 
-They've merged the church with state, and they tell you who is free to love,
+They've merged the church with state, and tell you who is free to love,
 They'll bar the clinic door with law and call it the will from above,
 Then preach about the founders and the freedom that they saw,
 And tell you who to kneel to and which falsehoods become the law.
@@ -40,7 +40,7 @@ It lives inside our homes and halls, the hope that still remains,
 It's in the book they want to burn, the truth they haven't claimed,
 We teach it to our children so the light can be maintained—
 
-So when they come to sell you back the things they took and re-named,
+So when they come to sell you back the things they took and renamed,
 Remember, a chain is still a chain no matter how it's been reframed,
 Stay true to this and you will find your spirit can't be tamed—
 We hold these truths, and we'll call it freedom.
