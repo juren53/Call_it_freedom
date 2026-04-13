@@ -41,6 +41,6 @@ It's living deep inside us, that we are all the same,
 We teach it to our children, so we'll remember its name—
 
 So when they come to sell you back the things they took and named,
-Remember this chain is still a chain no matter how it's been reframed,
+Remember, a chain is still a chain no matter how it's been reframed,
 The word belongs to those who won't be bought or fenced or tamed—
 And we'll call it freedom.
