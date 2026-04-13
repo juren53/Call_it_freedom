@@ -5,7 +5,7 @@ The ones who lived on grievance now are having their full say,
 They've broken every guardrail and they've swallowed up the light,
 And through the wreckage of it all they're calling it their right.
 
-They've merged the church and state, they'll tell you who is free to love,
+They've merged the church with state, and they tell you who is free to love,
 They'll bar the clinic door with law and call it God above,
 Then preach about the founders and the freedom that they saw,
 And tell you who to kneel to and which prayers can pass the law.
