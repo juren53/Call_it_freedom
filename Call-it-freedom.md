@@ -42,5 +42,5 @@ We teach it to our children, so we'll remember its name—
 
 So when they come to sell you back the things they took and named,
 Remember, a chain is still a chain no matter how it's been reframed,
-If we hold this in our hearts and minds our spirit can't be tamed—
-And we'll call it freedom.
+Stay true to this and you will find our spirit can't be tamed—
+And we will hold these truths, and we'll call it freedom.
