@@ -11,7 +11,7 @@ Then preach about the founders and the freedom that they saw,
 And tell you who to kneel to and which falsehoods become the law.
 
 They'll promise you they'll make it great, make it great again,
-Then point across the table at the skin of other men,
+Then point with crooked fingers at the skin of other men,
 They'll build the wall up higher so the right ones can come in—
 And they call it freedom.
 
