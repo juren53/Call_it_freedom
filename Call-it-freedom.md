@@ -22,7 +22,7 @@ And tell you that the market has the whole thing nicely planned.
 
 They'll arm the one who's angry and they'll arm the grieving son,
 Then count the bodies carefully and say it's not the gun,
-They'll pass another bill and say the deed is finally done—
+They'll pass another bill and say the deed is finally done,
 Their thoughts and prayers mean little. And they call it freedom.
 
 They'll call the press the enemy and make the lie their own,
