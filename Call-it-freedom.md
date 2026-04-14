@@ -10,7 +10,7 @@ They bar the clinic door with law, calling it the will from above,
 Then preach about the founders and the freedom that they saw,
 And tell you who to kneel to and which falsehoods become the law.
 
-They'll promise you they'll make it great, make it great again,
+They'll promise you they'll make it great, then make it great again,
 Then point with crooked fingers at the skin of certain men,
 They build their wall up higher so only right ones can come in—
 Forget if they are tired and poor. And they call it freedom.
