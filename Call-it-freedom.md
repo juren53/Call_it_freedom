@@ -27,7 +27,7 @@ Their thoughts and prayers mean little. And they call it freedom.
 
 They'll call the press the enemy and make the lie their own,
 They'll storm the halls of government and call it love alone,
-They'll pardon every rioter and swear it was your right,
+They'll pardon every rioter and swear it was their right,
 Then tell you what you saw that day was just a different sight.
 
 They're drilling out the oilfields and they're burning up the ground,
