@@ -38,7 +38,7 @@ And education, who needs it, when we have all these freedoms.
 But liberty is not the property of those who deal in chains,
 It lives inside our homes and halls, the hope that still remains,
 It's in the book they want to burn, the truth they haven't claimed,
-We teach it to our children so the light can be maintained—
+We teach it to our children so the light can be maintained.
 
 So when they come to sell you back the things they took and renamed,
 Remember, a chain is still a chain no matter how it's been reframed,
