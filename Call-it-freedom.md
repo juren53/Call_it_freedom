@@ -1,0 +1,46 @@
+And They Call It Freedom
+
+A dark cloud has spread across the country and it's owning the day,
+The ones who lived on grievance now are having their full say,
+They've broken every guardrail and they've swallowed up the light,
+And through the wreckage of it all they're calling it their right.
+
+They've merged the church with state, and tell you who is free to love,
+They bar the clinic door with law, calling it the will from above,
+Then preach about the founders and the freedom that they saw,
+And tell you who to kneel to and which falsehoods become the law.
+
+They'll promise you they'll make it great, then make it great again,
+Then point with crooked fingers at the skin of certain men,
+They build their wall up higher so only right ones can come in,
+Forget if they are tired and poor. And they call it freedom.
+
+They said they'd drain the swamp but the money has moved in,
+The senator who sold his precious vote is pocketing the win,
+They've handed every key to those who've always owned the land,
+And tell you that the market has the whole thing nicely planned.
+
+They'll arm the one who's angry and they'll arm the grieving son,
+Then count the bodies carefully and say it's not the gun,
+They'll pass another bill and say the deed is finally done,
+Their thoughts and prayers mean little. And they call it freedom.
+
+They'll call the press the enemy and make the lie their own,
+They'll storm the halls of government and call it love alone,
+They'll pardon every rioter and swear it was their right,
+Then tell you what you saw that day was just a different sight.
+
+They're drilling out the oilfields and they're burning up the ground,
+They'll ban the books that tell the truth and call the silence sound,
+They'll leave the smoke and wasteland where the schoolhouse was found,
+And education, who needs it, when we have all these freedoms.
+
+But liberty is not the property of those who deal in chains,
+It lives inside our homes and halls, the hope that still remains,
+It's in the book they want to burn, the truth they haven't claimed,
+We teach it to our children so the light can be maintained.
+
+So when they come to sell you back the things they took and renamed,
+Remember, a chain is still a chain no matter how it's been reframed,
+Stay true to this and you will find your spirit can't be tamed,
+We hold these Truths, and we will call it Freedom.
